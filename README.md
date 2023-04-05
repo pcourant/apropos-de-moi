@@ -1,1 +1,1 @@
-Pierre COURANT
+Pierre COURANT aka pcourant
